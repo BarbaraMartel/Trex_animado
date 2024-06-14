@@ -1,1 +1,1 @@
-# Trex_animado
+# Juegos-compatibles-con-dispositivos
